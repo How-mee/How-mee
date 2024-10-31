@@ -2,7 +2,7 @@
 - 👀 I’m interested in arts
 - 🌱 I’m currently learning AI
 - 💞️ I’m looking to collaborate on a project 
-- 📫 reach me on instagram @creatief_srsuthi
+- 📫 reach me on instagram @creatief_srushti
 - 😄 Pronouns: she
 - ⚡ Fun fact: abrivert
 
